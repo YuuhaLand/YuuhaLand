@@ -16,7 +16,7 @@ Githubに関する知識はあまりないです😴
 
 ｡･ﾟ❦ﾟ･｡｡･ﾟ♡ﾟ･ ₊ ᨦ❦ᨩ ໋₊ ｡･ﾟ♡ﾟ･｡｡･ﾟ❦ﾟ･｡
 
-🎮Xbox 👉 YukaYama0311
+🎮Xbox 👉 YukaYama0311  
 🦤X（Twitter）👉 Gotemba912  
 💻Github 👉 YuuhaLand  
 気軽にフォローしてね❗ 
