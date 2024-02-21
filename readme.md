@@ -24,17 +24,11 @@ Githubに関する知識はあまりないです😴
 なかよくしてね⁽⁽ᐠ( ˊᵕˋ♡)ᐟ⁾⁾
 
 　∧＿∧  
-（｡･ω･｡)つ━☆・*。  
+（｡･ω･｡)つ━☆・\*。  
 ⊂　　 ノ 　　　・゜  
 　しーＪ  
-°。+ * 。  
-　　　　　　　　　 .・゜  
-                   　　       +*  
-                   ｡ﾟﾟ･｡･ﾟﾟ。  
-　　　　      *          ｡ﾟ  
-　　　　     　ﾟ･ ｡･ﾟ  
-｡ *ﾟ ﾟ* ｡　 ｡ *ﾟ ﾟ *｡  
-*　　　 ﾟ｡ﾟ  
+°。+ \* 。  
+
 
 <!--
 **Gotemba912/Gotemba912** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
